@@ -6,4 +6,6 @@
 - not a fan of nixon
 - dontt live your life behind doors
 - dont blackmail
+- esponage lol spelling
+- send spies to do job
 - 
