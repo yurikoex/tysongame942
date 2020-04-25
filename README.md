@@ -8,4 +8,22 @@
 - dont blackmail
 - esponage lol spelling
 - send spies to do job
-- 
+- political intrige
+- need mechanic to motivate player to undercut competitor
+- rep grinding
+- strong area of geography
+- real realtime
+- classes of characters
+- scenario
+  - journalist
+  - get work at news paper
+  - pick a story
+  - fired at sewage treatment plant
+  - actually travel to person in realtime(1hour realtime)
+  - link to story
+  - another link in story
+  - getting to a point
+  - solve the story arc
+- tyson wants a game mechanic that rewards a player because grandfather and player is jewish in a contest scenario
+- motivation
+- reward is character driven, not monatory
